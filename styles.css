@@ -1,0 +1,85 @@
+:root {
+  --link-color: midnightblue;
+  --link-visited: indigo;
+}
+
+* {box-sizing: border-box;
+}
+
+html {
+  font-family: Georgia, 'Times New Roman', Times, serif;
+  line-height: 1.325;
+  font-size: 1.325rem;
+  background-color: #E8DCC0;
+  margin: 0.125rem;
+  padding: 0.125rem;
+}
+
+body {
+  margin-bottom: 3rem;
+  padding-bottom: 4.5rem;
+}
+
+h1 {
+  font-size: 3rem;
+  text-align: center;
+  font-weight: 500;
+}
+
+h2 {
+  font-size: 2rem;
+  text-align: center;
+  font-weight: 500;
+}
+
+h3 {
+  font-size: 1.6rem;
+  text-align: center;
+  font-weight: 500;
+}
+
+a {
+  color: var(--link-color);
+}
+
+a:visited {
+  color: var(--link-visited);
+}
+
+ol {
+  width: 60%;
+  margin-left: 10rem;
+  padding-left: 0;
+}
+
+ol li {
+  margin: 0 0.25rem;
+  padding-left: 0;
+}
+
+footer {
+  position:fixed;
+  bottom:0;
+  left:0;
+  width:100%;
+  text-align:center;
+  line-height: 1;
+  margin: 0;
+  padding: 0;
+  background-color:#00372a;
+  color:#e8dcc0;
+}
+
+footer p {
+  margin: 0.25rem;
+  padding: 0.25rem;
+  font-size: 0.8rem;
+}
+
+footer a {
+  color: silver;
+}
+
+footer a:visited {
+  color: thistle;
+}
