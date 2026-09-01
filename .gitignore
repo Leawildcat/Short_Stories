@@ -14,7 +14,7 @@
 
 # Ignore VS Code workspace junk
 .vscode/
-Valley Stories-Github.code-workspace
+Short Stories-Github.code-workspace
 
 # Ignore macOS junk
 .DS_Store
