@@ -1,0 +1,88 @@
+## The Truth in the Space Between
+
+What is held between the spaces is everything I never say out loud. The breath before I answer. The pause after someone leaves. The way the house settles when the day finally stops demanding things from me. The spaces hold the truth I only feel in my ribs, the ache, the hope, the memory, the anticipation. All the things that don’t fit neatly into words live there.
+
+Then the trunk lid slammed, and the whole world seemed to pause. The storm was rolling in, the driveway smelled like rain, and I felt that familiar pull in my chest. The one that shows up when something important is leaving, even if it’s only for a little while. The slam wasn’t just metal meeting metal. It was the punctuation mark on a chapter I didn’t want to end.
+
+I watch as Sean leans on the trunk, mentally checking off a list to make sure he has packed everything. The image reminds me of the day his father left twenty-five years ago. Another between space of truth I would rather not visit today. The wind is picking up, and the rumble of thunder could now be heard. I watch as Sean notices it too and he pushes off the trunk and slow-walks to join me on the steps to the porch.
+
+“Is that it? Did you get everything packed? Do you want to do one more walk-through?” I ask, trying not to let the angst show in my body and voice.
+
+“Nah. I think I’ve gotten everything I want to take with me. Besides, it’s not like I can’t come back for it or… or you ship it to me.” He replies.
+
+I caress his cheek and grip his chin, trying to comfort him. “Hey. Look at me, please. It’s for the best. If you stay here it will kill you. I can absolutely ship it to you. And yes, you can come back, just not for a while yet. Go and do some adulting for a change.”
+
+He half chuckles and half huffs at me. “What if I don’t want to do adulting? I’ve already done enough adulting… for you.”
+
+My eyebrows shoot up in surprise, realizing there were many times he was the adult and I was the child. “Being my parent is much different from being your own man. You deserve that. You also deserve to live in a place where the shadow of your father is not hanging over you like the Sword of Damocles.”
+
+He sighs. “So you keep saying. Come with me. Don’t you deserve the same freedom?”
+
+My turn to sigh. “Oh honey, I gave up any hope of that long ago. We’ve had this conversation. And just to be trite, I’ll remind you again, I gotta kick you outta the nest so you can learn to fly.”
+
+He sticks his lip out, pouting like he was three again. “But. But I don’t wanna go.”
+
+I stand on tip-toes and kiss his cheek, leaving a pink stain from my lipstick. “I know son, I don’t want you to go but you must. I won’t be around forever and it’s time for you to learn to live without me. I don’t want you to have to deal with it like I did.”
+
+He grabs me in a big bear hug, holding on tight. The sudden crack of thunder makes us both jump and we look up as the drops begin to fall. He gives me a quick peck and darts for the car. I retreat to the porch, letting the screen door slam behind me. I turn to watch him start the car and back down the drive. He looks back one last time at me as he pulls onto the street. I blow him one last kiss goodbye and wave. He returns the gesture and I watch as his taillights disappear down the street, blurring as the rain falls harder.
+
+My shoulders slump and I walk back into the house. It’s too quiet. Not an unsettling quiet. Not a pensive quiet, just the truth one of the spaces holds. The quiet of a person missing from the home. The disruption of the beat of the house. Its breath. Its rhythm. The absence amplifying the other sounds. I sigh and turn on the light as the storm has darkened the room. At least he’s heading away from the storm and that has to be a good sign.
+
+I turn to close the door and lock the deadbolt so the wind doesn’t blow it open. It was something neither Dad nor I got around to fixing. A strong south wind without the deadbolt latched blew it open every time. The space between releases another memory. This time of Sean and Piper, his border collie, scrambling in one Saturday morning to wake me. They were terrified that a ghost had entered to watch cartoons with them. It was just a gusty Spring day. The wind had blown the door open, causing the metal stripping to vibrate and whistle. It was a sound I had grown up hearing. The ghostly, vibrato ‘woo-ooo-ooo’ I later learned was the metal acting like the reed in my clarinet.
+
+I closed the door, and a rain-scented pocket of air slipped in to jangle the keys hanging on the pegs by the door. It twirled the smiley face key chain, catching the light from the lamp, the yellow worn away in spots. Another truth slips out, widening its space where the memory of Keith lived in the space between. It was the only thing he had left in the house when he packed his own car on a similar stormy day. It was meant as a joke and a promise. The one thing that brought us together as teens was sure to bring Sean and me to him two hundred miles away.
+
+I can still remember the smells from the pizza parlor. The dough, the spices, the tang of the pizza sauce and powdered parmesan cheese all drifting back, to the point I can almost taste one of those pizzas. I hadn’t made one in years. Sean never understood why I didn’t make or order pizza very often. I just simply told him I ate too much as a kid and it’s off the list. He didn’t buy it, much like he doesn’t buy the things I hide in the space between. I remember the day we met fighting over that coin machine.
+
+I had been working there for a few months, and it was a Saturday night after an afternoon football game. Keith was a junior and the star quarterback. I was just a freshman trying to earn money for college and my first car. Keith, with most of the team in jerseys and jeans and cheerleaders still in their uniforms, were being rowdy at a table near the back celebrating the win over a rival across the state line.
+
+I was just trying to keep up with the orders coming in for delivery and pickup and keep the soda machine filled. I finished the last request on the ticket before adding it to the spinner for the cooks in the back and looked up to see Keith standing there with a smirk on his face. He was already the town darling by taking the team to an undefeated state championship last year. His father was the Mayor, prominent attorney in town, and the most vocal deacon at the church. Keith had the movie star looks to make every girl swoon and the rebel attitude to go with it. I looked up at him giving me his full charm, and as the song says, “You don’t impress me much,” came to mind.
+
+“Excuse me, but we have a problem with one of the gumball machines. Can you help us?” he asked.
+
+“Just give me one second please while I get someone to cover the phone,” I replied.  
+I leaned through the order window and got Gary’s attention. “Hey can you help them with the gumball machine or man the phone and counter while I do it?”
+
+Gary threw his hands up and replied, “I’m not the one with the mechanical skills around here. That on you darlin’. Go. I got the phone and counter.”
+
+He came through the saloon doors and nodded to me. I pasted what I hoped was a polite smile on my face and tapped Keith on the shoulder. “Okay. Thanks for waiting. What is the problem?”
+
+Keith turned and flashed a smile. One that I saw as similar to the cartoons with the star on his teeth. I tried not to giggle as he explained, “I put the two quarters in but it only turned about a quarter of the way and jammed.”
+
+I grabbed the toolbox from under the counter. “Okay let’s see if we can at least get your fifty cents back.”
+
+It took me about two minutes to free the mechanism, but it wasn’t two quarters that fell out in my hand. It was a Canadian quarter and a Chuck E. Cheese token. I looked at him with the same look Daddy gave me when I was caught trying to pull a fast one.
+
+Keith blushed and then stuttered. “I… I forgot those were in my pocket. I just felt around and grabbed two quarters, ya know?”
+
+I studied him for a minute and knew he was genuinely surprised as I was. “Which keychain were you trying for?” I asked as I put the mechanism back together.
+
+“The smiley face one. It’s the only one I haven’t gotten out of it yet,” he said sheepishly.
+
+I got the tools back in the box and got the key to the top of the machine and palmed it. “You got two actual quarters?”
+
+“No but… hang on.” He pulled the change from his pocket. “I have four dimes and five pennies left. Shoot five cents short.”
+
+He looked like a puppy just denied a space on the bed because he was too little to jump on it. I relented and took the change from his open palm. I opened the top of the machine and fished out the smiley face key chain. I handed it to him. “Just add it to my tip later.”
+
+I went back to the counter, and he went back to his friends to show it off. We closed two hours later. Monday morning came, and the head football coach was my first teacher of the day. I was sitting at my desk looking over the required news stories to read when a shiny new nickel dropped in the middle of my newspaper. I looked up to see Keith standing there again with the sparkling tooth smile. This time I giggled.
+
+We were married a week after I graduated high school. He finished his law degree, and I went to the local community college, staying at home to take care of Daddy after a bad accident at work. He moved in with us while he earned his reputation at his father’s law firm. He was ruthless in divorce and as a defense lawyer. Some called him an ambulance chaser. The contrast between Keith and his father couldn’t be any more stark. It all came to a head when they went against each other in court. Keith was disowned and kicked out of the firm. It was a hard time for us both, especially since I had just found out I was pregnant with Sean.
+
+Keith tried to make a go of it with his own firm, but there just wasn’t enough clientele in the county to keep us afloat. The judges kept assigning him pro bono cases, and even with me pulling a shift at the hospital and a shift at the nursing home, we were barely covering the expenses. We knew I would soon be unable to work as the birth of our son approached. A friend of his from college heard about his troubles and told him about a position in the firm he was working at in Oklahoma City. He landed the interview and packed up to leave two weeks after Sean was born.
+
+I took the keychain from the peg, placed it on my ring finger, and gripped it tight. I moved to the bedroom, knowing that lying down was the only way I could let the next truth come out from the space between. I lay down, grabbing the pillow and hugging it tight, and closed my eyes. The emotions flooded me. The stress of the money troubles and not knowing what was coming. Then the joy, pride, and love at Sean being born. The fear of loneliness watching him pack but proud for him for finding a job he would love. The sadness and quiet of watching him leave. The house going quiet and losing its breath and rhythm again. Then the real truth, the fear for Sean.
+
+The contrast between Keith and Sean was not as black and white as Keith and his father. Sean was a tight end, not a quarterback. Sean had no interest in law, but was more scientifically inclined like me. He was the top flight and rescue medic in the county. They both were good looking and charming, but Sean was much more shy and less cocky than his father. The one thing they did have in common was constantly hearing, “Why can’t you be more like your father?”
+
+The tears began to flow down my cheeks as I wanted so much for that question not to come true this time. Keith arrived in Oklahoma City, staying with his friend until he could find us a place to live and move us there. His friend’s apartment didn’t have a guest room, and he was living off the couch and out of the car. His second week on the job and they already had him assisting on a case downtown. He had gone into the Murrah building for paperwork or a warrant or something and… I got the call around noon. There was nothing left of his car, and they needed his dental records to verify it was him.
+
+That was it. The truth in the space between. Had I sent my son away like I did my husband only to perish? The phone rang and I nearly fell off the bed. I picked up the receiver, and it was Sean.
+
+“Hi Momma I’m here finally. I already miss you. Are you sure about this?” he asks one last time.
+
+I feel the space between before I answer. “No, I’m not sure. But I know it’s what is best for you. Time to be Sean, not more like your father. Get unloaded and settled before the storms catch up to you. I love you, baby.”
+
+“I love you too, Mom. And remember you still need parenting and I will be checking up on you!”
+
+I felt that in my ribs, the hope this time would be different.
