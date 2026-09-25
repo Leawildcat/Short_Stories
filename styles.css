@@ -25,13 +25,25 @@ body {
     flex-wrap: wrap;
     justify-content: center;
     align-items: flex-start;
-    gap: 0.5rem;
+    gap: 1rem;
     padding: 0.5rem 0;
 }
 
 .story-index a {
     display: inline-block;
     padding: 0.25rem 0.5rem;
+}
+
+.story-index p {
+    width: 250px;   /* safe on all devices */
+    margin: 0;
+}
+
+.story-index img {
+    width: 100%;
+    height: auto;
+    max-width: 250px; /* portrait vs landscape solved */
+    display: block;
 }
 
 h1 {
