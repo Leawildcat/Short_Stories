@@ -35,7 +35,7 @@ body {
 }
 
 .story-index p {
-    width: clamp(280px, 30vw, 420px);
+    width: clamp(280px, 30vw, 480px);
     margin: 0;
 }
 
