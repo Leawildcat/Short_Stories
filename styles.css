@@ -20,6 +20,20 @@ body {
   padding-bottom: 4.5rem;
 }
 
+.story-index {
+    display: flex;
+    flex-wrap: wrap;
+    justify-content: center;
+    align-items: flex-start;
+    gap: 0.5rem;
+    padding: 0.5rem 0;
+}
+
+.story-index a {
+    display: inline-block;
+    padding: 0.25rem 0.5rem;
+}
+
 h1 {
   font-size: 3rem;
   text-align: center;
