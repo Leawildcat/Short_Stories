@@ -42,7 +42,8 @@ body {
 .story-index img {
     width: 100%;
     height: auto;
-    max-width: 250px; /* portrait vs landscape solved */
+    /* max-width: 250px; portrait vs landscape solved */
+    /* max-height: clamp(350px, 40vh, 600px); */
     display: block;
 }
 
