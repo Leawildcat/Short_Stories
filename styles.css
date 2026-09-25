@@ -35,7 +35,8 @@ body {
 }
 
 .story-index p {
-    width: clamp(280px, 30vw, 480px);
+    /* width: clamp(280px, 30vw, 480px); */
+    text-align: center;
     margin: 0;
 }
 
