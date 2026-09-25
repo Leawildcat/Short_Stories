@@ -35,7 +35,7 @@ body {
 }
 
 .story-index p {
-    width: 250px;   /* safe on all devices */
+    width: clamp(280px, 30vw, 420px);
     margin: 0;
 }
 
