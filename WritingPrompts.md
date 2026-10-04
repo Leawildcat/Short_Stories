@@ -45,3 +45,4 @@
 43. “…what is held between the spaces…” ["The Truth in the Space Between"]("c:\Documents\BookSS\Short Stories\The Truth in the Space Between.docx")
 44. “…but at the end of the day…” ["The Fat Man with Too Small of a Coat"]("c:\Documents\BookSS\Short Stories\The Fat Man with Too Small of a Coat.docx")
 45. “but the strangest thing was…” ["The Strangest Thing Was the Quiet"]("C:\Documents\BookSS\Short Stories\The Strangest Thing Was the Quiet.docx")
+46. “…it was an eerie sound reminiscent of…”
