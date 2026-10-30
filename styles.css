@@ -99,6 +99,14 @@ footer {
   color:#e8dcc0;
 }
 
+.block-quote {
+  font-size: 0.9rem;
+  font-style: italic;
+  text-align: center;
+  font-weight: 250;
+  margin: 1rem;
+}
+
 footer p {
   margin: 0.25rem;
   padding: 0.25rem;
