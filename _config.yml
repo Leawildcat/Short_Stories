@@ -3,3 +3,4 @@ exclude:
   - "*.docx"
   - "*.pdf"
   - "*.txt"
+  - "*.wbk"
