@@ -47,5 +47,5 @@
 45. “but the strangest thing was…” ["The Strangest Thing Was the Quiet"]("c:\Documents\BookSS\Short Stories\The Strangest Thing Was the Quiet.docx")  
 ["The Strangest Thing Was the Quiet - full"]("c:\Documents\BookSS\Short Stories\The Strangest Thing Was the Quiet II.docx")
 46. “…it was an eerie sound reminiscent of…” ["The Party Behind the Presses"]("C:\Documents\BookSS\Short Stories\The Party Behind the Presses.docx")
-47. “…it wasn’t the first time…”
+47. “…it wasn’t the first time…” ["Fluffocalypse"]("c:\Documents\BookSS\Short Stories\Fluffocalypse.md")
 48. “He/She has never seen anything like it…” ["Just Birds"]("c:\Documents\BookSS\Short Stories\Just Birds.docx")

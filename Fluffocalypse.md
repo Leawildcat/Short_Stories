@@ -1,0 +1,87 @@
+# Fluffocalypse
+
+It wasn't the first time, nor would it be the last, that I would come home and find a Muppet massacre in my house. I surveyed the damage, looking around for the most likely suspect. Bebe was nowhere in sight.
+
+What I did find was Tang, rolling happily on his back atop what appeared to be a miniature cow rug and, possibly, the gray remains of a mouse. Maybe. Maybe not. He looked up at me and gave me a soft mew.
+
+I took a step forward for a closer look when my phone rang.
+
+“Hello.”
+
+It was my youngest son who had been watching Tang and Bebe while I was away. “Hi, Ma. Just tryin’ to catch ya before you got home.”
+
+“Too late.”
+
+“Oops. Sorry. I’m guessing by that tone, they found the surprise I left for them and that I did forget to lock Bebe’s crate properly.”
+
+“What surprise would that be?”
+
+“Well, um, so I kinda spilled Bebe’s kibble when I was trying to open the box and well I sorta cut open the bag and when I picked it up it went everywhere. So, I had to go and get some more.”
+
+“Uh-huh. So why does it look like a stuffed-toys Jonestown in here?”
+
+“Well, so, they had a clearance sale and I thought maybe they wouldn’t act like you left them for good and could entertain them while you unpacked and not crowd you on the bed and well…”
+
+“Spit it out. What did you buy?”
+
+“So, they had these dog toys made to be destroyed to get a squeaky toy inside. So I got Bebe a cow with a milk carton and a mouse with cheese in it. And then they had a live catnip plant. I swear I put the plant where Tang couldn’t reach it.”
+
+“Where did you put it?”
+
+“In the top cabinet above the sink. The only one Tang can’t reach.”
+
+“Or me for that matter. It’s not like any of you boys got my height. You all had to take after your father and my dad.”
+
+“But you love us anyway.”
+
+“Some days I wonder. Okay I better get off here as I’m still standing at the front door watching Tang roll around and start to drool. Are you sure you got it out of his reach?”
+
+“Pretty sure. Maybe Bebe helped him.”
+
+“Maybe. But I better find her. She is nowhere to be seen.”
+
+“Yikes! Okay love ya, Ma. Bye!”
+
+“Love ya too.”
+
+Bebe had many talents. Hiding from baths. Stealing socks. Digging holes large enough to alter local drainage patterns. Framing Tang for crimes he did not commit was not one of them. Unfortunately, Tang possessed that talent in abundance.
+
+I sighed and looked around. Tang was definitely drooling and had eyes to rival anything Puss’n’Boots could come up with. I hoped whatever they used for the stuffing was safe for both of them. There was not an inch of space except where I had opened the door that was not covered in fluff and bits of fabric. Even the furniture had pieces here and there.
+
+I tested the wooden floor to make sure it was still there. I wasn’t wanting to slip because my knee was already complaining after spending a week lecturing and being on it. I looked at all the fluff and determined it was not safe to roll the suitcase to the bedroom. Fabric and fluff were bound to get tangled in the wheels. I lifted it and turned to go down the hallway. I set it back down because that was also covered in fluff. How big were these toys anyway?
+
+I wondered for a moment if I needed the leaf blower and decided to brave it down the hall to the bedroom. I couldn’t believe my eyes and dropped the suitcase with a loud thunk. The carpet had looked blue when I left for the conference. Now it looked like someone had attempted to shear a flock of polyester sheep in my bedroom.
+
+I shook my head and tried not to lose my temper. So which was the culprit, Bebe or Tang? Or both? The covers on the bed were bunched up and there were bits of red fabric. Someone had been sleeping in the bed. I noticed a dent in the pillows. Okay two monsters had been sleeping in my bed. I calculated the math in my head while I changed out of my dress and into cleaning clothes. Ninety minutes most likely since my son left and I arrived.
+
+A little over an hour and instead of relaxing from the trip I had to solve a mystery and clean it up. I couldn’t believe what Dylan was thinking about the stuffed toys, even if they were made to be destroyed. He knew Bebe would disassemble stuffed toys, both for humans and dogs. She did love to make it ‘snow’ as it were. Dylan had lost most of his stuffed collection of Pokémon and Mario toys he had acquired with games when Bebe was just a pup. He was still rebuilding that collection. Now that my thoughts were settling, I heard a squeaking sound coming from his room.
+
+I stepped back into the hallway and immediately saw Dylan’s door ajar. I took two steps to his door and a deep breath and pushed the door open with one hand. There in the middle of Dylan’s bed was Bebe. She looked like she had been put in the dryer and tumbled. Pieces of fluff were stuck to her fur, resembling the cartoons of pets who had wandered into a dryer. She was working on a rubberized milk carton between her paws trying to retrieve the squeaker from the plastic that was hanging onto its voice.
+
+Next to her was a ripped apart cheese wheel, not exactly into wedges. But what concerned me most was more of the red bits of fabric. My body filled with horror as I quickly scanned the room hoping what my mind just connected was not correct. I looked to the corner where Dylan kept a full sized Clifford the Big Red Dog he had won at the state fair. My fears were justified because it was missing.
+
+“Oh Bebe. You didn’t, but you did. How am I supposed to tell Dylan?”
+
+Bebe stopped chewing and looked up at me with a smile, tail thumping, and eyes completely unapologetic for what she had done. She shrugged at me and went back to trying to excavate the squeaker. I went to the bed and took the milk carton from her and pointed to the door. She dropped her head, knowing I was not happy with her choices. She risked a glance at me for a last minute reprieve and I replied, “Crate.”
+
+She knew she was in trouble and slid down off the bed. Tail between her legs and head down, Bebe did the walk of shame down the hallway with me right behind her. As she went, fluff seemed to flock to her like she was some giant fluff magnet. She entered the living room where her crate was and spotted Tang still rolling in the fluff. He spotted her and immediately flipped over. He stood and stretched, walked over to her, and gave her a kitty hug in the most dramatic drunk ‘I love you man’ he could. High on catnip he might be, but he was not getting off that easy.
+
+That move by Tang caused the magnetism to transfer to him. Cat fur creates more static cling than any balloon and hair or wool and plastic ever thought about. It solved the problem of cleaning off Bebe before locking her in her crate, but now I had a white fluffy kitty. I scooped up Tang and nudged Bebe into her crate. Bebe dejectedly entered her crate and turned around, looking at Tang and me like it was the last time she would see us. Tang, in the emotional state he was in, let out another mew as if to say goodbye forever.
+
+I glanced over to the music room and hoped that one had survived the fluffocalypse, but saw that room too had turned white. I paused for a minute not wanting to enter the kitchen and Tang started wiggling and purring in my hands. Even in his inebriated state he knew we were about to enter the epicenter of the crime.
+
+I adjusted him into more of a football hold and stepped through the doorway. I scanned the kitchen but there was no evidence of potting soil or leaves anywhere to be seen and oddly enough it was the one room that only had a shredded plastic bag and no fluff. I continued on through to the laundry room with Tang wiggling in my hands. I got to the dryer and, happy Dylan had not folded the towels, grabbed one from the dryer. I also reached up to the shelf and procured the dryer sheets and the wipes for pets. Time to defluff Tang.
+
+“You sir are supposed to be orange, not white.”
+
+The catnip must be wearing off because he now realized what was coming. I moved closer to the trashcan, and Tang struggled to get out of the grip I had on him. I silently thanked all the times I played football with the boys. I pressed the button to start the robot vacuum Joey had gotten me for Christmas. I then turned my attention to first using the dryer sheet on Tang. Then his eyes widened in horror as he watched me open the wet wipes.
+
+The dryer sheet had managed to accept the magnetism job it was designed for, but there were still a few stubborn pieces clinging to Tang. I set him on the towel on the dryer and started tail to ears, making sure his claws were intercepted by the towel. I was about to give him a quick rubdown when the robot vacuum returned. It was too soon to be done. It must be full. Tang took the opportunity at my distraction to make his great escape to under the kitchen table. At least he chose a spot that was free from fluff.
+
+I reached down and picked up the round robot and inspected it. It wasn’t full. Looked like it hadn’t even started. Just went to the living room and returned. Another mystery. I glanced at Tang under the kitchen table. He was bathing and gave me a very disgruntled look. He turned his back to me before sitting and resuming his bath. I fished my phone out of my back pocket to see what error message was on the robot. It displayed “Terrain differs from previous map.”
+
+I started the robot again. Joey's gift took off across the kitchen to the living room, promptly disappeared into a fluff drift higher than it was. It reappeared a moment later looking deeply offended by its working conditions. I looked at my phone again and this time, the error message read, “Not made for outdoor cleaning.”
+
+I snorted. Not smart enough to tell the difference between snow and fluff, it obviously was on Tang’s side. Tang watched it return to its charging station and with a glare at me, resumed bathing. It reminded me to check the cupboard. I grabbed the step stool, opened the door, and retrieved the catnip plant. It looked to be mostly intact, but beat up. I looked closer and watched a single yellowed leaf fall to the floor. Tang pounced on it immediately. Oh great here we go again!
+
+Tang had exactly three chomps and swallowed it before I could get to him on the floor. I put the poor plant back into the cabinet and tried to catch him before the catnip hit. Too late. His tail twitched. His eyes darted side to side and he let out a half purr, half growl. He took off like a shot through the house. Now I knew how fluff got everywhere except the kitchen. I sighed and went to the closet in the wash room and retrieved the vacuum. The only saving grace I had was thatt at least this time, Tang was static cling free. Clifford, the cow, and the mouse, unfortunately, were not.
