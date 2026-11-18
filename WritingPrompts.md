@@ -50,3 +50,4 @@
 47. “…it wasn’t the first time…” ["Fluffocalypse"]("c:\Documents\BookSS\Short Stories\Fluffocalypse.md")
 48. “He/She has never seen anything like it…” ["Just Birds"]("c:\Documents\BookSS\Short Stories\Just Birds.docx")
 49. “The worst thing about the holiday was…”["It Wasn't the Turkey's Fault"]("C:\Documents\BookSS\Short Stories\It Wasn't the Turkey's Fault.docx")
+50. “It was the first time s/he’d had it”
