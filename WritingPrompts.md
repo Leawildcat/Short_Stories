@@ -47,7 +47,8 @@
 45. “but the strangest thing was…” ["The Strangest Thing Was the Quiet"]("c:\Documents\BookSS\Short Stories\The Strangest Thing Was the Quiet.docx")  
 ["The Strangest Thing Was the Quiet - full"]("c:\Documents\BookSS\Short Stories\The Strangest Thing Was the Quiet II.docx")
 46. “…it was an eerie sound reminiscent of…” ["The Party Behind the Presses"]("C:\Documents\BookSS\Short Stories\The Party Behind the Presses.docx")
-47. “…it wasn’t the first time…” ["Fluffocalypse"]("c:\Documents\BookSS\Short Stories\Fluffocalypse.md")
+47. “…it wasn’t the first time…” ["Fluffocalypse"]("c:\Documents\BookSS\Short Stories\Fluffocalypse.docx")
 48. “He/She has never seen anything like it…” ["Just Birds"]("c:\Documents\BookSS\Short Stories\Just Birds.docx")
 49. “The worst thing about the holiday was…”["It Wasn't the Turkey's Fault"]("C:\Documents\BookSS\Short Stories\It Wasn't the Turkey's Fault.docx")
-50. “It was the first time s/he’d had it”
+50. “It was the first time s/he’d had it” ["The Things We Bury"]("c:\Documents\BookSS\Short Stories\The Things We Bury.docx") - Actually includes all 50 prompts.
+51. “It seemed like such a small thing at the time…”
